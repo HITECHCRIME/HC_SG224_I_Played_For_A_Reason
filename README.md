@@ -27,14 +27,12 @@ We gotta fight
 
 i played for a reason, it's twofold
 crashing through the twisted rot
-got a couple friends in darkness
-of the draught
-
+got a couple friends in darkness of the draught
 tried my fingers on the truth 
-it's a draught - when (as) I lay my fingers on the truth
+it's a draught - when (as) I lay my fingers on 'em fools
 tough to count them on the floor they fell off
 
-i know maybe touched it a bit too hard 
+perhaps i touched it a bit too hard 
 drop to the floor 
 ground is way too dull
 making fools of the dues
