@@ -38,6 +38,9 @@ ground is way too dull
 making fools of the dues
 now it's all a ruse
 
+rules
+it's a draw
+
 ```
 
 ## Lore Notes
