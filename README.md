@@ -29,7 +29,7 @@ i played for a reason, it's twofold
 crashing through the twisted rot
 got a couple friends in darkness of the draught
 tried my fingers on the truth 
-it's a draught - when (as) I lay my fingers on 'em fools
+it's a draught (draw) - when (as) I lay my fingers on 'em fools
 tough to count them on the floor they fell off
 
 perhaps i touched it a bit too hard 
