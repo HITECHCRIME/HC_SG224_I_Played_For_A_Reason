@@ -25,12 +25,13 @@ Description. SHADOWPLAY  [FREE] SCARLXRD TYPE BEAT 2020  HARD TRAP METAL BEAT (p
 Such Wicked times, we gotta fight
 We gotta fight 
 
-I played for a reason, it's twofold
-Crashing through the twisted rot
+i played for a reason, it's twofold
+crashing through the twisted rot
 got a couple friends in darkness
 of the draught
+
 tried my fingers on the truth 
-it's a draught when I lay my fingers on the truth
+it's a draught - when (as) I lay my fingers on the truth
 tough to count them on the floor they fell off
 
 i know maybe touched it a bit too hard 
