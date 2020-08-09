@@ -28,7 +28,7 @@ We gotta fight
 I played for a reason, it's twofold
 Crashing through the twisted rot
 Made a couple friends in darkness
-of the draught, laid my fingers on the truth
+of the draught, (caught) laid my fingers on the truth
 tough to count them on the floor they fell off
 i know maybe touched it a bit too hard 
 drop to the floor 
